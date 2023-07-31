@@ -35,3 +35,7 @@
 
 ![instagram](https://github.com/skismile/SSP-2.0-ASSETS/assets/101392872/803e5b6d-7737-4eb6-95dc-3e851e356f6c)
 ![facebook](https://github.com/skismile/SSP-2.0-ASSETS/assets/101392872/922f56a2-17c6-4368-9309-5665d85308f0)
+
+--------------------------------
+![ssp_logo-removebg-preview](https://github.com/skismile/SSP-2.0-ASSETS/assets/101392872/c207c1fa-92ba-46d8-85f2-e037ccaa1aca)
+
