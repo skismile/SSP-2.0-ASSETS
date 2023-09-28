@@ -45,3 +45,6 @@
 ![banner](https://github.com/skismile/SSP-2.0-ASSETS/assets/101392872/30db0c86-3490-4a75-84c7-099c5764a1f8)
 
 
+![about-2](https://github.com/skismile/SSP-2.0-ASSETS/assets/101392872/30bbad92-6e34-466e-9b9f-7eaed8cb3f34)
+
+
