@@ -48,3 +48,6 @@
 ![about-2](https://github.com/skismile/SSP-2.0-ASSETS/assets/101392872/30bbad92-6e34-466e-9b9f-7eaed8cb3f34)
 
 
+![k2l-logo](https://github.com/user-attachments/assets/1d2c8c83-3184-4512-b477-e9149e09808b)
+
+![k2l-logo-transperent](https://github.com/user-attachments/assets/2d7bee1d-3ba2-4ed4-8877-1743071bed22)
